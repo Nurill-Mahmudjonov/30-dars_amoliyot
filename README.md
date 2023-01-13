@@ -1,0 +1,1 @@
+# 30-dars_amoliyot
